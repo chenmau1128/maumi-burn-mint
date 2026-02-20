@@ -1,0 +1,1 @@
+# maumi-burn-mint
